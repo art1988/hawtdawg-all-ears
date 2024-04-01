@@ -1,4 +1,4 @@
-# FAQ
+# edited
 
 ## How many photos can I post?
  
